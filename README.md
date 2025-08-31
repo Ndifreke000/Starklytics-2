@@ -3,3 +3,5 @@
 who wants to contribute?? lol
 
 ive been thinking about what to do really
+
+i am bored 
