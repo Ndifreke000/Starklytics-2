@@ -2,4 +2,4 @@
 
 who wants to contribute?? lol
 
-ive been thinking about what ti di really
+ive been thinking about what to do really
