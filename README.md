@@ -1,3 +1,3 @@
 # Starklytics-2
 
-Acknowledge meeee
+msintsining stresks
